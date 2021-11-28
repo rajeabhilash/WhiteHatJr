@@ -6,7 +6,7 @@ Assignment from WhiteHatJr
 ![N|Solid](https://thumbs.bfldr.com/at/w9bjnnm4vpwx6qm6vbcjx3h/v/1011650453?expiry=1638695184&fit=bounds&height=800&sig=NTFiMzQ5NTBmZDhmZjk1OWUxZmJhNTM1MjBlNTM3YzA4M2JmZDExNg%3D%3D&width=1100)
 
 
-## View it on YouTube :
+## Watch it on YouTube :
 
 https://youtu.be/8wN_fhghpYY
 
